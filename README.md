@@ -1,1 +1,1 @@
-# Laboratorio-Correcion-Examen
+# Laboratorio-Correción-Examen
